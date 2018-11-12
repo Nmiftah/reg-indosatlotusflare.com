@@ -1,2 +1,0 @@
-# reg-indosatlotusflare.com
-Pwnd
